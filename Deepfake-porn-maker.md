@@ -7,8 +7,9 @@ In this article, we’ll explore the 7 best deepfake porn makers that allow you 
 ## 7 Best AI Deepfake Porn Makers (Free & Paid)
 
 ### 1. Swapper AI
+![deepfake porn maker](https://i.ibb.co/Jjq12zW8/deepfake-porn-maker-swapperai.png)
 
-SwapperAI is a beginner-friendly deepfake porn maker suitable for creators of all skill levels.  
+[SwapperAI](https://swapperai.com?ref=67aecd33633bbcfaaffa439f) is a beginner-friendly deepfake porn maker suitable for creators of all skill levels.  
 Its intuitive interface ensures that even complete beginners can easily use the tool. With useful features like facial expression adjustment and skin tone matching, SwapperAI helps you fine-tune your creations to make them look more natural and polished.
 
 You can use SwapperAI to generate NSFW deepfakes for memes, personal fun, or even for creating eye-catching adult content that stands out.
@@ -20,7 +21,7 @@ How to Use SwapperAI?
 
 ### 2. NewFacePorn
 
-NewFacePorn.com is a next-gen platform that leverages AI deepfake technology to personalize adult videos like never before.  
+[NewFacePorn.com](https://newfaceporn.com?ref=65ee6c28f173ac2aa39ff667) is a next-gen platform that leverages AI deepfake technology to personalize adult videos like never before.  
 With NewFacePorn, users can swap faces in ready-made adult video templates, replacing actors with celebrities, themselves, or anyone they choose.
 
 The tool offers a huge library of pre-existing scenes, and once you select one, the AI handles the rest — matching expressions, skin tones, and even movements seamlessly.
